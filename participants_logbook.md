@@ -27,3 +27,4 @@ I never felt lost. It was a great learning experience. Thanks for introducing me
 * Thank you for your amazing lectures and feedbacks and thank you for being so supportive! Greetings from Argentina! 🇦🇷
 
 * Great summer school and very well organized! I have learned a lot! Thank you all, Ana Karla Diaz Rodriguez
+* Thank you for giving us this opportunity to attend this school from a distance. I personally learnt a lot and how to search for things. It was the first time things like these were presented to me and taught. and I am impatient into applying it to my research. Thank you so much^^-Kateriniovi
